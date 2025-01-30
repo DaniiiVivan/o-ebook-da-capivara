@@ -13,5 +13,4 @@ A partir da intenção de criação de um ebook sobre educação financeira para
 🚀 Resultados
 E-book formatado para crianças sobre a iniciação na educação financeira
 
-💭 Reflexão (Opcional)
-Comente sobre o desafio de criar algo 'natty' com IA.
+https://www.canva.com/design/DAGc3s2kvFQ/ZzPxtI5vwNQhAP7pxgAz5A/edit?utm_content=DAGc3s2kvFQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
